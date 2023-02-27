@@ -12,4 +12,4 @@
 
 . looking for connection within data science community 
 
-
+(Stephen Ajulu, MingTang)-custom profile examples 
