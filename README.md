@@ -1,2 +1,11 @@
-# Joel-Ronoh
-This is my custom profile,  data science Journey   
+# Hi there 🎯
+
+
+. Here is my, data science Journey   
+
+. Looking to collaborate 
+
+. Looking for best sources of educational material
+
+
+. looking for connection within data science community 
